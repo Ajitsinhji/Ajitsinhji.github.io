@@ -1,1 +1,1 @@
-# Ajitsinhji.github.io
+# ajitsinhji.github.io
